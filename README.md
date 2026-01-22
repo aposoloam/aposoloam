@@ -1,1 +1,1 @@
-# Enjoy the configs! Most of my projects are kept private on here for now, but you can still look through my dotfiles!
+Most of my repos are kept private, PM if you'd like access or to chat!
