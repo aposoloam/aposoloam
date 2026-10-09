@@ -1,1 +1,2 @@
-Most of my repos are kept private, PM if you'd like access or to chat!
+Most of my repos are kept private because they make money!
+PM if you'd like to chat :)
